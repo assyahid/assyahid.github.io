@@ -1,2 +1,0 @@
-# assyahid.github.io
-Prtofolio
